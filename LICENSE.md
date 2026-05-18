@@ -1,4 +1,4 @@
-#  
+#  Automatic brainrot evolution script is the best brainrot evolution script with custom skins and teleport. Safe, reliable, and optimized for maximum performance.
 
 
 
